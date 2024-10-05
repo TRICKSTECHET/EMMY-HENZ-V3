@@ -1,4 +1,4 @@
-### EMMY_HENZ-V3 WHATSAPP BOT🔥
+### TRICKS WHATSAPP BOT🔥
 
 --------
 
